@@ -6,4 +6,4 @@ Dhar B, Ali SH, Sharma P, Mohsin FM, Parikh RS, DiClemente RJ. Exploring the inf
 
 Sharma P., Kaushik M., Bal K., Ali S., Wang N. E. (2021). Exploring the relationship between multigenerational households and preventative healthcare. (under preparation)
  								
-Sharma P., Bal K., Kaushik M., Ali S., Shashank J. (2021). Acculturative family distancing and help-seeking behaviors in AsianAmericanadolescents. (under preparation) 
+Sharma P., Bal K., Kaushik M., Ali S., Shashank J. (2021). Acculturative family distancing and help-seeking behaviors in Asian American adolescents. (under preparation) 
